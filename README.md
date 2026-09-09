@@ -1,4 +1,4 @@
-## Introduction to Genesis
+# Introduction to Genesis
 <br>
 
 ## Historical and Cultural Settings
